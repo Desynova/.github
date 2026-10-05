@@ -1,0 +1,2 @@
+# Planetcast
+We are Planetcast. We empower media companies, studios, artists alike to focus on creativity and letting them do their thing: Being creative.
